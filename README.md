@@ -6,3 +6,4 @@ Silahkan gunakan format:<br>
 
 Berikut adalah nama volentir yang terdaftar
 * Oon Arfiandwi, [oo.or.id](https://oo.or.id).
+* Gilang Ramadhan, [Linkedin](https://www.linkedin.com/in/gilang-adhan/).
